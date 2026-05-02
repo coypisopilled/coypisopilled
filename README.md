@@ -4,7 +4,7 @@
 <p align="center">
    <b>⋆⋅☆⋅⋆</b><br>
    <i>Jack !</i><br>
-   ENG ⁃ 17 ⁃ He/Him<br>
+   ENG ⁃ 18 ⁃ He/Him<br>
    ───── ⋆⋅☆⋅⋆ ─────
 
 <p align="center">
