@@ -1,6 +1,6 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/d0768251bb97e0c92db43bded8d6260c/e6d2071d27e2932f-d1/s2048x3072/1052a19557d0dda728cab06b6a07e295ab52632a.pnj"/>
-  <img src="https://file.garden/ZgXR2Yo9YF7EdA0d/Untitled217_20260501153818.png"/>
+  <img src="https://cdn.discordapp.com/attachments/1459841533925785753/1513926780858400931/Untitled249_20260609161722.png?ex=6a2981af&is=6a28302f&hm=450bc670585492b32526283123b10df0c58bb84d0ea0d71b9ee1a8f4fca2fde5"/>
 <p align="center">
    <b>⋆⋅☆⋅⋆</b><br>
    <i>Jack !</i><br>
