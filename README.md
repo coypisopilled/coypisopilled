@@ -1,12 +1,12 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/d0768251bb97e0c92db43bded8d6260c/e6d2071d27e2932f-d1/s2048x3072/1052a19557d0dda728cab06b6a07e295ab52632a.pnj"/>
-  <img src="https://file.garden/aiwuFb1dcGybpNqd/Untitled249_20260609181504.png"/>
+  <img src="https://file.garden/aiwuFb1dcGybpNqd/sayaka%20graphic.img"/>
 <p align="center">
    <b>⋆⋅☆⋅⋆</b><br>
    <i>Jack !</i><br>
    ENG ⁃ 18 ⁃ He/Him<br>
    ───── ⋆⋅☆⋅⋆ ─────
-<b><p align="center"><img src="https://64.media.tumblr.com/960f1fb687360a1824e1c5bcfd08ff15/e1274f2b8ebaf609-18/s400x600/34b86aedd4a801365f968f71f6c62e34abb0b854.gifv"/>
+<b><p align="center"><img src="https://64.media.tumblr.com/1088e9d2101ad7f47e14cb0495503093/869d6b667f13934b-77/s640x960/ed961de225c31e31b5302c35d06067a96e821896.pnj"/>
 <p align="center">
    <img src="https://64.media.tumblr.com/4d01b6440b565ddc65e8a3dafa6e82f5/6547a9c18239e126-e6/s75x75_c1/9b7853ff3e908965cbc4e1dee6af26507ce4866b.gifv"/><b>─ DNI</b><br>
    General criteria, Proshippers/Darkshippers/etc
