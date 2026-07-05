@@ -6,7 +6,7 @@
    <i>Jack !</i><br>
    ENG ⁃ 18 ⁃ He/Him<br>
    ───── ⋆⋅☆⋅⋆ ─────
-<b><p align="center"><img src="https://64.media.tumblr.com/1088e9d2101ad7f47e14cb0495503093/869d6b667f13934b-77/s640x960/ed961de225c31e31b5302c35d06067a96e821896.pnj"/>
+<b><p align="center"><img src="https://64.media.tumblr.com/2f53a45deefdb1e266a608b23dd191b1/7d7655cf615f978b-8e/s500x750/1b6838cd751259124e4fc06d0d80d091b94cfc58.gifv"/>
 <p align="center">
    <img src="https://64.media.tumblr.com/4d01b6440b565ddc65e8a3dafa6e82f5/6547a9c18239e126-e6/s75x75_c1/9b7853ff3e908965cbc4e1dee6af26507ce4866b.gifv"/><b>─ DNI</b><br>
    General criteria, Proshippers/Darkshippers/etc
