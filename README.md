@@ -10,6 +10,6 @@ ${\textsf{\color{#ff1a29}dark}}$ ${\textsf{\color{#e00029}+}}$ ${\textsf{\color{
 </br>
 ${\textsf{\color{#ff1a29}yellowjackets,}}$ ${\textsf{\color{#e00029}forsaken,}}$ ${\textsf{\color{#c80027}bunch of friends,}}$ ${\textsf{\color{#b50027}overwatch,}}$ ${\textsf{\color{#a10028}persona}}$ ${\textsf{\color{#8e002a}fans}}$ ${\textsf{\color{#72001c}pls int}}$
 </br>
-${\textsf{\color{#ff1a29}normally}}$ ${\textsf{\color{#e00029}TEXT}}$ ${\textsf{\color{#c80027}TEXT}}$ ${\textsf{\color{#b50027}TEXT}}$ ${\textsf{\color{#a10028}TEXT}}$ ${\textsf{\color{#8e002a}TEXT}}$ ${\textsf{\color{#72001c}TEXT}}$
+${\textsf{\color{#ff1a29}normally}}$ ${\textsf{\color{#e00029}at}}$ ${\textsf{\color{#c80027}campsite}}$ ${\textsf{\color{#b50027}or}}$ ${\textsf{\color{#a10028}forsaken}}$ ${\textsf{\color{#8e002a}area}}$ ${\textsf{\color{#72001c}w friends!}}$
 </br>
 ${\textsf{\color{#ff1a29}read}}$ ${\textsf{\color{#e00029}carrd}}$ ${\textsf{\color{#c80027}for}}$ ${\textsf{\color{#b50027}more}}$ ${\textsf{\color{#a10028}info!!}}$ ${\textsf{\color{#8e002a}aswell as}}$ ${\textsf{\color{#72001c}enpronouns}}$
