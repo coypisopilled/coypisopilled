@@ -5,3 +5,6 @@
 <p align="center">
 </br>
 ${\textsf{\color{#ff1a29}jack}}$ ${\textsf{\color{#e00029}he}}$ ${\textsf{\color{#c80027}/}}$ ${\textsf{\color{#b50027}him}}$ ${\textsf{\color{#a10028}18}}$ ${\textsf{\color{#8e002a}super}}$ ${\textsf{\color{#72001c}gay}}$
+</br>
+${\textsf{\color{#ff1a29}dark}}$ ${\textsf{\color{#e00029}+}}$ ${\textsf{\color{#c80027}pro}}$ ${\textsf{\color{#b50027}ship}}$ ${\textsf{\color{#a10028}dni}}$ ${\textsf{\color{#8e002a}youre}}$ ${\textsf{\color{#72001c}weird!!!}}$
+
