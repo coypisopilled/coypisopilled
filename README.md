@@ -1,6 +1,6 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/d0768251bb97e0c92db43bded8d6260c/e6d2071d27e2932f-d1/s2048x3072/1052a19557d0dda728cab06b6a07e295ab52632a.pnj"/>
-  <img src="https://file.garden/aiwuFb1dcGybpNqd/sayaka%20graphic.img"/>
+  <img src="https://64.media.tumblr.com/70055ac0690e545ab0ad6d37e29760d5/7f8a32dcacef81d7-50/s250x400/e45bdbc791cc3fc662522bcef4b8c4d1f2f5779b.gifv"/>
+  <img src="https://file.garden/aiwuFb1dcGybpNqd/coy%20red%20graphic.png"/>
 <p align="center">
    <b>⋆⋅☆⋅⋆</b><br>
    <i>Jack !</i><br>
