@@ -8,7 +8,7 @@ ${\textsf{\color{#ff1a29}jack}}$ ${\textsf{\color{#e00029}he}}$ ${\textsf{\color
 </br>
 ${\textsf{\color{#ff1a29}dark}}$ ${\textsf{\color{#e00029}+}}$ ${\textsf{\color{#c80027}pro}}$ ${\textsf{\color{#b50027}ship}}$ ${\textsf{\color{#a10028}dni}}$ ${\textsf{\color{#8e002a}youre}}$ ${\textsf{\color{#72001c}weird!!!}}$
 </br>
-${\textsf{\color{#ff1a29}yellowjackets,}}$ ${\textsf{\color{#e00029}forsaken,}}$ ${\textsf{\color{#c80027}bunch of friends,}}$ ${\textsf{\color{#b50027}overwatch,}}$ ${\textsf{\color{#a10028}persona}}$ ${\textsf{\color{#8e002a}fans}}$ ${\textsf{\color{#72001c}pls int}}$
+${\textsf{\color{#ff1a29}yellowjackets,}}$ ${\textsf{\color{#e00029}forsaken,}}$ ${\textsf{\color{#c80027}bunch of friends,}}$ ${\textsf{\color{#b50027}overwatch,}}$ ${\textsf{\color{#a10028}persona and madoka}}$ ${\textsf{\color{#8e002a}fans}}$ ${\textsf{\color{#72001c}pls int}}$
 </br>
 ${\textsf{\color{#ff1a29}normally}}$ ${\textsf{\color{#e00029}at}}$ ${\textsf{\color{#c80027}campsite}}$ ${\textsf{\color{#b50027}or}}$ ${\textsf{\color{#a10028}forsaken}}$ ${\textsf{\color{#8e002a}area}}$ ${\textsf{\color{#72001c}w friends!}}$
 </br>
