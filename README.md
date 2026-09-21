@@ -4,7 +4,7 @@
   <img width="236" height="236" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/coy%20red%20graphic.png>
 <p align="center">
 </br> 
-${\textsf{\color{#ff1a29}jack}}$ ${\textsf{\color{#e00029}he}}$ ${\textsf{\color{#c80027}/}}$ ${\textsf{\color{#b50027}him}}$ ${\textsf{\color{#a10028}18}}$ ${\textsf{\color{#8e002a}super}}$ ${\textsf{\color{#72001c}gay}}$
+${\textsf{\color{#ff1a29}jack}}$ ${\textsf{\color{#e00029}he}}$ ${\textsf{\color{#c80027}/}}$ ${\textsf{\color{#b50027}him}}$ ${\textsf{\color{#a10028}18}}$ ${\textsf{\color{#8e002a}years old}}$ ${\textsf{\color{#72001c}gay}}$
 </br>
 ${\textsf{\color{#ff1a29}killer}}$ ${\textsf{\color{#e00029}coy piso}}$ ${\textsf{\color{#c80027}+}}$ ${\textsf{\color{#b50027}popiso}}$ ${\textsf{\color{#a10028}canbon}}$ ${\textsf{\color{#8e002a}willcoy}}$ ${\textsf{\color{#72001c}fanatic!!}}$
 </br>
