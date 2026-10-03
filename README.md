@@ -16,6 +16,15 @@ ${\textsf{\color{#ff1a29}normally}}$ ${\textsf{\color{#e00029}at}}$ ${\textsf{\c
 </br>
 ${\textsf{\color{#ff1a29}read}}$ ${\textsf{\color{#e00029}carrd}}$ ${\textsf{\color{#c80027}aswell as}}$ ${\textsf{\color{#b50027}enpronouns}}$ ${\textsf{\color{#a10028}for}}$ ${\textsf{\color{#8e002a}more}}$ ${\textsf{\color{#72001c}info !}}$
 </br>
+    <p align="center">
+      ${\textsf{\color{#FFABDC}my hanbon}}$ https://github.com/mirrorgem
+  </br>
+    <p align="center">
+      ${\textsf{\color{#FFCF90}my anthpo}}$ https://github.com/BEASTGUEST
+    </br>
+    <p align="center">
+      ${\textsf{\color{#A96BFA}my will}}$ https://github.com/chxerryval
+  </br>
 </br>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
