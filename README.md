@@ -24,9 +24,6 @@ ${\textsf{\color{#ff1a29}read}}$ ${\textsf{\color{#e00029}carrd}}$ ${\textsf{\co
     </br>
     <p align="center">
       ${\textsf{\color{#A96BFA}my will}}$ https://github.com/chxerryval
-    </br>
-      <p align="center">
-      ${\textsf{\color{#CA2020}my bobbie}}$ https://github.com/dollsection
       </br>
       <p align="center">
        ${\textsf{\color{#243582}my mac}}$ https://github.com/DECAYING-CLOWN
